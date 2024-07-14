@@ -1,0 +1,8 @@
+- 👋 Hi, I’m closetintheshadows call me jaco though
+- 👀 I’m interested in horror
+- 🌱 I’m currently learning how to draw ponies
+- 💞️ I’m looking to collaborate on nowhere
+- 📫 How to reach me? here or nowhere mate
+- 😄 Pronouns:idk anything but he/him
+- ⚡ Fun fact:im in your closet
+- NOW SPELL ANSWER-🎵
